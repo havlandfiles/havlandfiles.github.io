@@ -1,0 +1,3 @@
+If this doesn't make everything clear I don't know what will. There's always been a quiet plan to "Danmarkise" Havland and get rid of all the small bits of local culture, all the people and communities that have never quite fit with the official Nordic narrative. Well, with everything happening in Sweden, I guess the people over here with those beliefs got a bit bolder. They've been trying since 1982 and now they've won.
+
+God, why do I even bother these days.

@@ -1,0 +1,3 @@
+A collection of academic articles I've collected from various sources (thanks, Giles) on Havland. It's a sparse list -- most of it is in Havlandic, and what remains isn't exactly top-notch. But it's the best I could assemble at a short notice, filtering for things like "annual reports on fishery and industrial trade volume".
+
+It's frustrating, how little the world cares about people who aren't hyper-rich and powerful. Don't people who live in places like Havland matter too? If I hadn't volunteered to take the initial story about upcoming elections in 2001, it's likely that the entire Havland story would have just been relegated to the slush pile and forgotten about. Is that fair?

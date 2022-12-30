@@ -1,0 +1,1 @@
+It's just depressing, how much the "official" media sources just blandly accepts the incoming developments, legitimising the extremists and painting them as "forward thinkers". All the questions are relegated to a few coy hints... and nothing. I guess they don't mind too much, I'm sure they all speak Danish already.
